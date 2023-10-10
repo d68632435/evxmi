@@ -1,4 +1,4 @@
-![Koibito](https://koibito.qweme.dev/@evxmi?scale=2&theme=chainsaw-man&length=6)
+![Koibito](https://koibito.qweme.dev/@evxmi?scale=2&theme=rule34&length=6)
 
 <!--
 Доступные параметры
